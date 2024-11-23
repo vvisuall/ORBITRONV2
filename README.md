@@ -1,2 +1,2 @@
 # ORBITRONV2
-renamed
+https://discord.gg/U8FhFdvGcf | renamed
